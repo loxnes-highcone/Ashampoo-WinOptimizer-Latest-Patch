@@ -1,0 +1,1 @@
+# Ashampoo-WinOptimizer-Latest-Patch
